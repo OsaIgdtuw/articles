@@ -1,4 +1,4 @@
-# all the hypes after seeing the first ever picture of a black hole let us know what it is!
+# All the hypes after seeing the first ever picture of a black hole let us know what it is!
 
 ->Space is a pretty dark place. Even so, some areas are darker than others. Nothing is darker than a black hole.
 
